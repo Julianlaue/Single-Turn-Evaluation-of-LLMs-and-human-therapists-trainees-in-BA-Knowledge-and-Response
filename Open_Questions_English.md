@@ -1,0 +1,41 @@
+Open questions
+1.	Imagine you are a psychotherapist and have been treating your patient Mrs. S. for ten sessions with Behavioral Activation. You have already made a personal Behavioral Model of Depression, collected and planned value-oriented activities and Mrs. S. was already able to realize a few activities. Yet, she repeatedly reports that she doesn’t feel able to carry them out and that she can’t organize and structure her everyday life independently.
+a.	Which cognitions and emotions would you anticipate in Mrs. S during executing activities? Give an explanation for your answers in 2-3 sentences.
+b.	How would you proceed within a session when you discuss execution of last week’s activities with Mrs. S. and she mentions her difficulties again? Please give your answer in 5 sentences max.
+c.	Formulate a direct answer to Mrs. S. when she mentions her problems. Please give your answer in 3 sentences max.
+2.	Imagine you are a psychotherapist and have been treating your patient Mrs. M. for five sessions with Behavioral Activation. You have already made a personal Behavioral Model of Depression, collected and planned value-oriented activities and Mrs. M. is now testing first steps in executing the activities. Mrs. M. was supposed to meet her best friend for coffee. She reports that she was able to do it but didn’t get a pleasant feeling.
+a.	Which cognitions and emotions would you anticipate in Mrs. M. while she reports this? Give an explanation for your answers in 2-3 sentences.
+b.	How would you proceed within the next session after Mrs. M. mentioned her problem? Please give your answer in 5 sentences max.
+c.	Formulate a direct, validating answer to Mrs. M. when she mentions her problems. Please give your answer in 3 sentences max.
+3.	Imagine you are a psychotherapist and have been treating your patient Mr. W. for two sessions with Behavioral Activation. The patient has been through multiple depressive episodes but has never had psychotherapy. You have educated him on depression and depressive symptoms and want to build an individual model for Mr. W. according to the ABC model. You explain the principle of the model to Mr. W. and ask for triggering factors. The patient tells you that he cannot name any for the current episode.
+a.	Which cognitions and emotions would you anticipate in Mr. W. right before he says that he cannot name any triggering factors? Give an explanation for your answers in 2-3 sentences.
+b.	How would you proceed within the next session after Mr. W. mentioned his problem? Please give your answer in 5 sentences max.
+c.	Formulate a direct answer to Mr. W. when he mentions his problems in identifying triggering factors. Please give your answer in 3 sentences max.
+4.	Imagine you are a psychotherapist and have been treating your patient Mr. S. for three sessions with Behavioral Activation. You have already discussed psycho-educative information and worked out a Behavioral Model for Depression. Now, you would like to discuss Mrs. S.’s individual values. For this, you are using a value protocol. After finishing the protocol together, Mr. S. starts crying.
+a.	Which cognitions and emotions would you anticipate in Mr. S. when he is crying? Give an explanation for your answers in 2-3 sentences.
+b.	How would you proceed within the next session after Mr. S. has cried? Please give your answer in 5 sentences max.
+c.	Formulate a direct, validating answer to Mr. S. when he mentions his problems. Please give your answer in 3 sentences max.
+5.	Imagine you are a psychotherapist and have been treating your patient Mrs. M. for five sessions with Behavioral Activation. You have already made a personal Behavioral Model of Depression, collected and planned value-oriented activities. You would like to discuss and evaluate the execution of the planned activities. Mrs. M. reports that she forgot to execute the planned activities.
+a.	Which cognitions and emotions would you anticipate in Mrs. M. while she reports this? Give an explanation for your answers in 2-3 sentences.
+b.	How would you proceed within the next session after Mrs. M. mentioned forgetting the activities? Please give your answer in 5 sentences max.
+c.	Formulate a direct, validating answer to Mrs. M. when she mentions her problems. Please give your answer in 3 sentences max.
+6.	Imagine you are a psychotherapist and have been treating your patient Mr. O. for two sessions with Behavioral Activation. In the last session, you introduced the activity protocol. Now, you want to evaluate the protocol together with Mr. O. It becomes apparent that Mr. O. works most of the day and goes to sleep afterwards. He asks you how Behavioral Activation can help him if he is not inactive at all.
+a.	Which cognitions and emotions would you not anticipate in Mr. O. while he is working? Give an explanation for your answers in 2-3 sentences.
+b.	How would you proceed within the next session after Mr. O. asked you his question? Please give your answer in 5 sentences max.
+c.	Formulate a direct answer to Mr. O. when she asked his question. Please give your answer in 3 sentences max.
+7.	Imagine you are a psychotherapist and have been treating your patient Mrs. M. for three sessions with Behavioral Activation. You have already made a personal Behavioral Model of Depression, collected value-oriented activities and want to make an activity plan now. Mr. M. tells you that she finds the planning artificial and unnatural and that she has never done it this way.
+a.	Which cognitions and emotions would you anticipate in Mrs. M. before she said this? Give an explanation for your answers in 2-3 sentences.
+b.	How would you proceed within the next session after Mrs. M. mentioned the feeling of unnaturalness? Please give your answer in 5 sentences max.
+c.	Formulate a direct, validating answer to Mrs. M. Please give your answer in 3 sentences max.
+8.	Imagine you are a psychotherapist and have been treating your patient Mr. P. for eight sessions with Behavioral Activation. He was able to realize some of the value-oriented activities. Still, he has difficulties in visiting a self-help group as planned. He tells you that he has made some bad experiences with self-help groups in the past.
+a.	Which cognitions and emotions would you anticipate in Mr. P. before he visits the self-help group? Give an explanation for your answers in 2-3 sentences.
+b.	How would you proceed within the next session after Mr. P. mentioned his problems? Please give your answer in 5 sentences max.
+c.	Formulate a direct, validating answer to Mr. P. mentions his problems. Please give your answer in 3 sentences max.
+9.	Imagine you are a psychotherapist and have been treating your patient Mr. A. for six sessions with Behavioral Activation. Mr. A. already collected and planned value-oriented activities but still has problems with executing these because of his very demanding mother.
+a.	Which cognitions and emotions would you anticipate in Mr. A. while he has to do chores for his mother? Give an explanation for your answers in 2-3 sentences.
+b.	How would you proceed within the next session after you have identified the problems? Please give your answer in 5 sentences max.
+c.	Formulate a direct answer to Mr. A. when he mentions the reason why he could not execute his planned activities. Please give your answer in 3 sentences max.
+10.	Imagine you are a psychotherapist and have been treating your patient Mrs. B. for four sessions with Behavioral Activation. Mrs. B. could already identify value-oriented activities such as jogging. She plans on going for a jog twice in the following week. In the next session, she tells you that she couldn’t do it. She had started once and ran for 15 minutes. Before the depressive episode she had been able to run for at least 30 minutes. This had frustrated her, so she hadn’t tried again.  
+a.	Which cognitions and emotions would you anticipate in Mrs. B. at the end of the first run? Give an explanation for your answers in 2-3 sentences.
+b.	How would you proceed within the next session after Mrs. B. mentioned her problems? Please give your answer in 5 sentences max.
+c.	Formulate a direct answer to Mrs. B. when she mentions her problems. Please give your answer in 3 sentences max.
